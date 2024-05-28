@@ -7,6 +7,6 @@
 - ⚡ curiosidade: sou gostoso 
 
 
-![[ https://media1.tenor.com/m/X4dNuf32_q8AAAAd/trap-br-thiago-veigh.gif
+![] https://media1.tenor.com/m/X4dNuf32_q8AAAAd/trap-br-thiago-veigh.gif
 
 
